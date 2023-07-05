@@ -2,8 +2,10 @@
 - 👀 I’m interested in MACHINE LEARNING and MATHEMATICS.
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ADVANCED AI MACHINES.
-- 📫 How to reach me ON INSTAGRAM @hpdjoy on twitter @hpdjoy
-- 
+- 📫 Soical links:
+- https://www.instagram.com/in/hpdjoy/
+- https://www.fecebook.com/in/hpdjoy/
+- https://www.twitter.com/in/hpdjoy/
 - https://www.linkedin.com/in/hpdjoy/
 - 
 <!---
