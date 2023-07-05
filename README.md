@@ -3,9 +3,9 @@
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ADVANCED AI MACHINES.
 - 📫 Soical links:
-- https://www.instagram.com/in/hpdjoy/
-- https://www.fecebook.com/in/hpdjoy/
-- https://www.twitter.com/in/hpdjoy/
+- https://www.instagram.com/hpdjoy/
+- https://www.fecebook.com/hpdjoy/
+- https://www.twitter.com/hpdjoy/
 - https://www.linkedin.com/in/hpdjoy/
 - 
 <!---
